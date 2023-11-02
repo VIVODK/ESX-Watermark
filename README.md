@@ -5,4 +5,6 @@ Her er et Mega fedt ESX Watermark Alt Kan Ændres der kommer 1 mere Snart som og
 
 Join Discorden ved Nogen Fejl!
 
-https://discord.gg/6y2jJ7ScbR
+https://discord.gg/dBZmtfNMPd
+
+Lavet af VIVO X Hanzi
